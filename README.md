@@ -1,5 +1,4 @@
 <img width="976" height="412" alt="122" src="https://github.com/user-attachments/assets/f7e9eb23-1008-49c2-bfae-9e5f4ab72abb" /># Where-Winds-Meet-Ru-Discord-.Where Winds Meet Ru Discord Ру Дискорд сервер. Официальный Русский Дискорд Сервер Игры.
-<img width="976" height="412" alt="122" src="https://github.com/user-attachments/assets/b600c3b8-5765-4564-a54b-7bd72436a31d" />
 
 Where Winds Meet Ru Discord Ру Дискорд сервер.
 Where Winds Meet Ru Discord Ру Дискорд сервер.
